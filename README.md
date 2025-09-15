@@ -31,6 +31,8 @@ Artificial Intelligence is revolutionizing healthcare, and holistic & alternativ
 > 👉 **[Schedule your free consultation now →](https://calendly.com/builder-labs/free-consultation)**
 
 ---
+<img width="852" height="582" alt="489271217-2a0b6030-27ba-4791-a584-079c60f7d2ff" src="https://github.com/user-attachments/assets/36416aae-204f-42ce-8e9f-595bac28e52d" />
+
 
 ## AI Tools & Technologies
 
